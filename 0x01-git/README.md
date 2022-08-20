@@ -1,1 +1,1 @@
-I'm ready to always learn
+The tougher get going.
